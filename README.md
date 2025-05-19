@@ -1,6 +1,6 @@
 - 👋 Olá,sou o Gabriel,mas pode me chamar de O.G B3RT
-- 👀 Tenho 18 anos
-- 🌱 Faço curso técnico em DS.
+- 👀 Tenho 21 anos
+- 🌱 Formado no curso técnico em ADS pela institutição de ensino SENAI.
 - 💞️ Entrei no Github para adquirir conhecimento e compartilhar o que eu for adquirindo tambem.
 - 📫 No tempo livre gosto de ouvir música, jogar games online, acompanhar e praticar futebol.
 
